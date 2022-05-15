@@ -1,2 +1,2 @@
-# Cindrella
-The story of Cindrella
+# Cinderella
+The story of Cinderella
